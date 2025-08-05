@@ -49,9 +49,3 @@ Siéntete libre de explorar y conectar conmigo.
 ¡Gracias por visitar mi portafolio! 🚀
 
 </div>
-
----
-
-¡Gracias por visitar mi portafolio! 🚀
-
----
